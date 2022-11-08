@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @pradeep-kec
+- 👀 App development , Ethical hacking
+- 🌱 computer science and Engineering in kec
+- 💞️ I’m looking to collaborate on ...
+- 📫 spradeepsakthi2004@gmail.com
+- 
