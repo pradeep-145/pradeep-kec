@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @pradeep-kec
+- 👋 Hi, I’m Pradeep Sakthi
 - 👀 App development , Ethical hacking
 - 🌱 computer science and Engineering in kec
 - 💞️ I’m looking to collaborate on ...
